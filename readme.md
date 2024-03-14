@@ -1,3 +1,3 @@
 assalamualaikum,
-every thing is okay ?
+hello every thing is okay ?
 InsyaAlloh every thing is okay guys
